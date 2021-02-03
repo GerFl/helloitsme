@@ -1,2 +1,4 @@
 # helloitsme
-The preservation of the martir in me
+
+You can't beat me, I'll chase you to the end of the wooooooooorld
+*se muere*
